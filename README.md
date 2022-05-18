@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **danivushka@gmail.com**
 
-- ⚡ Fun fact **translate "fifty ten hull" into french n listen ;)**
+- ⚡ Fun fact **translate "fifty ten hull" into french and listen ;)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
